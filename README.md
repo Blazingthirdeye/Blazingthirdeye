@@ -1,5 +1,6 @@
 ### Hi there 👋
-this computer program is gonna kick your ass and come at you from multiple dimensions
+this computer program is gonna kick your ass and come at you from multiple dimensions cuz I am not even warmed-up yet.  Get ready.
+
 <!--
 **Blazingthirdeye/Blazingthirdeye** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
